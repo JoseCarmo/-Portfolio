@@ -2,7 +2,7 @@
 
 Portfolio para empregadores e pessoas interessadas 
 
-> a versao em ingles, acesse o arquivo: [Port_JCarmo_PT.pdf]
+> Para versao em ingles, acesse o arquivo: [Port_JCarmo_PT.pdf]
 
 Portfolio destinated to employers and interested public
 
